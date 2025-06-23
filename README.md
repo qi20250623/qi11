@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://tt-01.pages.dev/">Twitter中文版</a>
 
-点击访问：<a href="https://cg70-1.pages.dev/">51吃瓜</a>
+点击访问：<a href="https://pi01-1.pages.dev/">必看大瓜</a>
 
 
 
